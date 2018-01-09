@@ -23,9 +23,3 @@ DATE (à préciser)
 
 
 
-
-
-
-
-
-***UPEC GEii English Classes for Educative Purposes only***
