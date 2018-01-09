@@ -1,7 +1,9 @@
 # GEII
+
 English Classes
 
 **Contrôle 1**
+
 DATE (à préciser)
 
 - Lire un article
@@ -26,4 +28,4 @@ DATE (à préciser)
 
 
 
-UPEC GEii English Classes for Educative Purposes only.
+***UPEC GEii English Classes for Educative Purposes only***
