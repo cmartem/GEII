@@ -18,7 +18,7 @@ DATE (à préciser)
 
 - Choisir un article (10 pages min)
 - Lire et surligner les termes, verbes, connecteurs logiques
-- Traduire en français
+- Traduire les mots en français
 - Intégrer dans le vocabulaire: [LIEN EST ICI](https://docs.google.com/document/d/1abxNHFOYnlsrFzTnUz_tfmXOf0LxCwbWLTf7QcseagA/edit?usp=sharing)
 
 
