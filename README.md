@@ -10,7 +10,7 @@ Jan 17
 
    S2 [lien sur GoogleDrive](https://docs.google.com/document/d/1Bk077XFiKNNUmLh8a0A5v87A5UKaDOHobbIqwz29NrM/edit?usp=sharing)
 
-  S3 [lien sur GoogleDrive](https://docs.google.com/document/d/1H6IDR6RgBKobh9d9QsIs5sOgY_sRYc8DuZ5MGVJpd2U/edit?usp=sharing)
+  S3 [lien sur GoogleDrive](https://drive.google.com/file/d/1d5CbGpuvhxBiFq9G660MekrRAKclSH8j/view?usp=sharing)
 
 **Contrôle 1**
 
