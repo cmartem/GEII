@@ -14,9 +14,12 @@ English Classes
    
    07/02 - S4 [lien](https://docs.google.com/document/d/1Q1WQ5FjQjkB28-aJl8iEvVhmeSUYpKRbstLF0hnzZ-E/edit?usp=sharing)
    
-   **Contrôle 2**
-   [![IMAGE ALT TEXT](https://www.ted.com/talks/nancy_duarte_the_secret_structure_of_great_talks/transcript?referrer=playlist-how_to_make_a_great_presentation](http://www.youtube.com/watch?v=YOUTUBE_VIDEO_ID_HERE "How to Inspire Ideas") By the way, you can enable subtitles. Use English subtitles, not French. And yes, there is a transcript down the video.
-Enjoy
+**Contrôle 2**
+   [Video](https://www.ted.com/talks/nancy_duarte_the_secret_structure_of_great_talks/transcript?referrer=playlist-how_to_make_a_great_presentation)
+   By the way, you can enable subtitles. Use English subtitles, not French. And yes, there is a transcript down the video.
+   Enjoy
+   
+   
 **Contrôle 1**
 
 DATE 07/02
