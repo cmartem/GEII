@@ -16,7 +16,7 @@ English Classes
    
 **Contrôle 2**
    [Video](https://www.youtube.com/watch?v=RHX-xnP_G5s)
-   By the way, you can enable subtitles. Use English subtitles, not French. And yes, there is a transcript down the video.
+   By the way, you can enable subtitles. Use English subtitles, not French. 
    Enjoy
    
    
